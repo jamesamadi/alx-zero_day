@@ -1,1 +1,1 @@
-thank you alx for this opportunity
+thanks alx
